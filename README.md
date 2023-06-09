@@ -1,0 +1,5 @@
+- 👋 Hi, I’m john koang
+- 👀 I’m interested in coding
+- 🌱 I’m currently done with Economic and finance
+- 💞️ I’m looking to collaborate on doing projects with my colleagues
+- 📫 How to reach me text on whatapp 0799936304.
